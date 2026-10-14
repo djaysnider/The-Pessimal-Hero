@@ -1,0 +1,39 @@
+Barry had not seen Vicky quite so fidgety before.  They’d given Hal five days to heal and strengthen the ankle, and Barry had insisted he wear the combat boots this time.  Vicky seemed overly anxious to get back to work, even though, by her own admission, there wasn’t sufficient crime on weeknights to justify the patrol.  Instead, while Barry and Hal busied themselves with training and new equipment, Vicky was busy at her array of terminals and screens, apparently deep into some kind of analysis of criminal movement and patterns.  Every once in a while, she would mutter an expletive or gasp in amazement at something, but for the life of him, he had no idea if she was working on crime fighting tactics or absorbed in The Young and the Restless.
+Finally, the time came.  Barry and Vicky helped Hal don his suit, which now took only about 15 minutes to deploy, secure, and stock. This was slightly faster than Hal could dress himself most mornings.  The Roadsterd had charge for three days straight, removing the fear of another unscheduled, but fortuitous stop.  Tonight, they were ready.
+“Okay, Vicky, you’ve been on those things for days putting something together.  Is it ready for tonight’s justice party?” Hal asked.
+Barry took his normal seat next to her and pulled up the one screen he was allowed to use.  “What exactly HAVE you been working on, anyway?”
+Vicky spun her chair around and looked at Hal. “Last weekend, you became a hero to the third-shift crazies and the insomniacs who watch the overnight news.  However, by morning, your heroic exploits were overshadowed by a recap of the previous day’s weather and a story about a dog that called 911 and got its owner arrested for outstanding video rental charges going back 25 years.”
+“I want to die an anonymous, heroic death.  The last thing I want to be is a martyr.  I’m just fine with people forgetting me.”
+“Well, it also ties in with some chatter I recently came across.  I did a little digging and potentially found something major.” She reached behind her and started calling up a series of articles, maps, and police logs.  “We need to do something that’ll get you on the 11 o'clock news again.”
+“What?!  No!” Hal protested.  “I don’t want to be on the news.”
+“Quiet, Punkin’, and listen.  Those scooter gangs, they all drive the same brand of rentals, right?  They’ve just bypassed the card swipe, so they’re always running.  There are three companies: Avocado, Sparrow, and Streak.  Which gang did you smash up last weekend?”
+“Avocado,” Hal said.
+“Right,” Vicky said, and a portion of the map of downtown turned Green.  “They control most of the North and Northeast sides of the downtown corridor.  Sparrow is almost exclusively south of Franklin Street, as indicated in blue.  Streak are hipsters who control everything west of 3rd Avenue, which we show here in yellow.  The arts and warehouse districts are pretty much tributes to Mad Max, but in general, if any one of those three gangs bumps into anyone from one of the two rival gangs, then you’re pretty much guaranteed a fight is going to break out.  Mostly it’s clubs and knives with these guys, but some of the older members have been known to use guns to settle disputes.”
+“With you so far,” Hal said.  Barry nodded his agreement as well.
+“So, what were a dozen members of the Avocado gang doing here last Saturday night when you bumped into them?”  A red dot began flashing on the map of the city. It was clearly several blocks past “neutral territory” and well into Streak’s yellow portion of the map.
+“Your information is outdated?”
+“From what I’m hearing, it’s worse than that.  Someone is uniting the scooter gangs and possibly looking to arm them.”  Data began scrolling on another of Vicky’s screens.  “These are cargo manifests from a known black market exporter in South China.  He received ten separate orders to ten different addresses, all placed on behalf of a company called 'Columbanus Enterprises, Inc.'“
+“And you are, of course, going to tell me why that’s important?”
+“When the cops stopped and questioned those thugs who chased you last Saturday, two of them were carrying what they said were ‘payroll checks’ at the time.  With the banks closed, they were going to deposit them on Monday.  The amounts were small, just a couple of hundred dollars, and the checks were made out to the boys in question, so the police didn’t pursue it further.”
+Barry let out a whistle.  “Let me guess.  The company that issued the checks, and where the gang members claimed to work, was Columbanus Enterprises.”
+“Got it in one, Muffin.  I’m proud.  You’re not just a pretty face, are you?” Vicky gave him a condescending ruffle of his hair.
+Hal raised a finger. “Hey, I was gonna guess that too.”
+“Sure you were, Punkin’.”
+“Question is, what do we do with this information? I mean, if it meant anything, they police would have already moved in.”
+“I find this stuff in just a couple hours of searching in my spare time, and you think the police, whose job this is, don’t know anything about it?”  Vicky made a clicking sound with her teeth.  “Either they’ve got someone buried undercover with the gangs, or they’re somehow making a profit off this and they’re in on it.”
+“We don’t even know what ‘it’ is though.”
+“Which is where you come in, Mr. Eidolon.  I think you should do a bit of recon and try to fill in these gaps in our knowledge.”
+Hal pursed his lips.  “Okay, I’m listening.”
+“These scooter gangs are just local punks of various ages who just jack the commercial scooters that anyone with a credit card can rent.  Obviously, someone has shown them how to bypass the battery cutoff so they can operate them without a credit card.  They usually just ditch the scooters in the river when they’re done, but sometimes they hold on to them for a couple of days.”
+“Sensible,” Barry said.
+“Now, normally, the companies pay people a buck or two per scooter to drive around, pick them up, and either charge them overnight and put them back on the street in the morning, or drive them to the company charging station to be recharged overnight.  They find the scooters via an app that tracks them via GPS.”
+Vicky swiveled her chair back around.  “I hacked into Avocado’s app. There are about fifteen of those scooters parked around an old service station at Kirby Street and 14th Avenue.  They show that they haven’t been picked up for recharging in over a month, yet they’re still charged.  The neighborhood is pretty far out and really rough, so none of the pickup people want to venture out there to get them just for a couple of measly bucks.”
+“So that’s the Avocado Den of Evil!” Hal was excited now.
+Vicky shook her head and pulled up another display.  “Is it!?  Because I just got into the Sparrow app and found a dozen or so of THEIR scooters parked there as well.  Now, seeing as how this is Streak’s turf, what do you reckon I’m going to find when I break into that app?”
+“It’s a summit!  I’ve got to get out there and see what they’re planning!”
+Barry threw up his hands in mock exasperation. “Seriously? Last week you barely survived eight scooter punks, and now you’re signing up for thirty-six?”
+“Relax, Muffin,” Vicky assured him. “Just surveillance. We're not fighting the Great Scooter War. Yet.”
+
+Barry feigned disappointment. “Aw, shucks. And here I was ready to become a legend’s sidekick.”
+“Think bigger,” Vicky said. “We find out what they're planning, preempt crimes, and maybe, just maybe, clear the sidewalks of obnoxiously parked scooters forever. Plus, it's personal. Those throttle jockeys robbed us last month. Revenge served via justice.”
+“And scooter repossession,” Hal added, grinning.

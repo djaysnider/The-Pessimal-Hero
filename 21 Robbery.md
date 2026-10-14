@@ -1,0 +1,40 @@
+“I feel completely ridiculous,” Hal protested.  He was standing in a well-lit gas station service area, dressed in gray armor and a trench coat -- in the middle of July -- fumbling around trying to figure out how to plug the charging cable into the port on the side of the car.  Eventually, he managed to work it out, checked the gauges, and jumped back in the car.  At least the tinted windows would obscure him from passers-by.  “Is it even working?”
+“It’s charging, Punkin’.  Just sit tight until you’ve got about a quarter charge.”
+“I don’t even know this part of town.  Is it safe here?”
+“Perfectly!” Vicky offered, not sounding convinced.  “Assuming it’s daylight and you don’t actually try to park a sleek, aggressive, and oddly impractical car that says, ‘I watched every episode of Knight Rider, and now I’m compensating,’ anywhere in the area.”
+“Swell,” Hal said.  “Anything about us on the Police scanners?”
+“Nothing,” Barry replied.  “At least not about the car.  They're still circling Gibson Street looking for a maniacal homeless man in a gray trench coat, so either the gang didn’t notice it was your car that smashed up the scooters, or they didn’t want to admit to owning them.”
+“There’s that at least,” Hal sighed.  He had just begun taking off his gloves when he noticed a dark figure wearing a trench coat appearing from around the side of the building and heading into the convenience store through the main entrance.  It was almost 90 degrees out, with humidity that made underwear cling to very uncomfortable parts of the body.  What sensible human being would be wearing a trench coat on a night like tonight?  It was doubtful there could be two justice-loving vigilantes in the city.
+Hal refastened his gloves, pulled up his gaiter and hood, and slipped out of the car, keeping low to avoid detection.
+“What are you doing, Punkin’.”
+“The vigilante thing,” Hal said calmly, then added, “I think.”
+Barry sat upright. “Going to nipplecam,” he said, flicking the video feed on. As Hal was still in a crouch, he saw nothing but sidewalk scrolling past, then a gloved hand that slowly opened the front door. There was heard the tell-tale “DING-DONG” of the sensor being activated, and the unmistakable sound of a shotgun being pumped. “Twelve gauge, pump action, I'm guessing 5+1, try to get it in frame and I'll confirm.”
+A clerk was frantically gibbering in a strange language. Barry and Vicky exchanged confused glances, indicating neither of them recognized it.  The robber yelled at the clerk to open the register and take out the money.  It didn’t seem to be translating well.
+“Okay,” Barry said, trying to remain calm, “that floorplan is just like the station up the street from your house.  The cashier’s counter is on the left. If you stay low, everything to your right is out of their line of vision.  Just remember to watch the eyelines and the cameras.  I’m guessing he won’t leave the register area for fear the clerk will trigger an alarm, and he probably assumed the door chime was a panicked customer sneaking out.”
+Barry watched the floor slide quickly past as hall crawled rapidly on all fours, occasionally raising up to get a view of what was going on up front.  He had moved to the far end of the store from the door and was approaching the robber from directly behind.  When he had closed to about ten feet, his hand went to his side next to the tazer.  “Sorry, to interrupt,” Hal said, “I'm just here to--”  As soon as he spoke, the robber turned and reflexively fired.  Hal ducked for cover back in the aisle as the shot struck a display stand, spraying the entire front half of the store in a wash of sponge cake, chocolate, and cream filling.
+“--  pick up some gum and a gallon of justice!” Hal shouted over the sound of collapsing shelves. He was now 0 for 3 at intros.
+The gunman said nothing, looking around for Hal.  Knowing that there was currently no bullet in the chamber, Hal drew the tazer from his belt, leaped out into the open, and fired.  One prong barely connected to the gunman’s shoulder, and the other bounced off his jacket and into the back of the cigarette rack above the registers.
+The gunman pumped the shotgun, and Barry heard a distinctly audible expletive before the camera movement went insane, then completely dark.  A second gunshot went off, followed by another crash of noise and the sound of Hal screaming in pain.
+“Hal!  Are you hit?  What happened?!  Oh, hell!”
+“Calling 911 now!” Vicky said, punching up a phone emulator on her terminal.
+Suddenly, the picture came back as Hal rolled from his stomach to his back and began shuffling for cover around the corner of the aisle.  He wasn’t getting up, Barry thought. He must have been hit.
+An ominous figure stepped into view from around the corner, a 12-guage shotgun held at his side, unthreatening for the moment.  “What the hell are you supposed to be?”
+“I’m the Eidolon!” Hal said defiantly, though obviously in pain.
+“The what?!” the man said, and suddenly Barry saw a hidden wisdom in Hal’s choice of names.
+“Hal, if you can hear me.  Time for the ‘Retha Special.’  Raise your right arm, like you’re singing ‘Stop in the Name of Love,’ hold down the button on your belt, then make a rush for his gun.
+Hal did as he was told and held his thumb down on the button.  Three very long seconds went by, followed by a loud explosion from under his wrist. Hal screamed both in surprise and in pain as the pipe slammed backward into his armpit.  The robber doubled over onto his back with a slightly shorter, more masculine yelp of surprise, dropping the gun and grabbing his midsection.  Hal leapt forward and dove at the gun.  When both men stopped moving, they were both lying on their sides on the floor, with Hal holding the 12-gauge to the would-be robber’s head.  Unfortunately, the robber was busy groaning with pain and was completely oblivious to the fact he’d just been captured by the Eidolon.
+“Jesus, Barry, what the hell was that?! It almost took my arm off!” Hal yelled, forgetting his affected superhero voice. He was trying to get to his feet without taking the gun off the robber.
+“Rock salt zip gun. Completely non-lethal,” Barry offered. “Actually, I was kinda surprised it worked at all, to be honest.”
+“You could have told me what you were arming me with, and for the record, ‘Stop in the Name of Love’ was a Supremes Hit.  That’s Diana Ross, not Aretha Franklin, you uncultured simp!”
+“First of all, it’s a last-resort only weapon.  If you had known you had it, and what it was, you might have used it before it was truly the last resort, and you really needed it.”
+“I assume there’s a second point to that?”
+“I changed the name because I didn’t want you to guess. I wanted to hear you shriek like a girl when it went off.” Both Barry and Vicky laughed at that. “How bad did he hit you?”
+“I wasn’t hit. I just made a last-minute strategic dive for cover.  Unfortunately, even though my reflexes are good, I don’t know my own strength and cracked my ankle on a shelf.”
+“... and THAT is why we wear combat boots. Tightly laced ones!” Barry said, vindicated.
+Hal slowly and non-threateningly handed the shotgun to the clerk, pointing at the robber to silently instruct him to keep him covered.  “The Police ...” He made a finger gun with his left hand and a circular motion with his right to indicate sirens. “Are on ... their way ...  here ...” He pointed at the floor to emphasize the point.
+The clerk rolled his eyes.  “I’m from Chicago, man. I just pretend I don’t speak English to stall for time while I go to the alarm.”
+“Oh, okay then.”
+“What are you, some kind of cosplayer?”
+“I’m the Eidolon.”
+“Okay, cool.”
+Hal limped out of the store, disconnected the Roadster from the charging station, and was three blocks away when he passed the first police car headed to the scene.  He laughed with delight all the way back to the man cave.

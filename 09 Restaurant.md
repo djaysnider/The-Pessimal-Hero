@@ -1,0 +1,42 @@
+The two sat awkwardly in one of the booths at “Jon Howard’s Gas and Go Diner, Convenience Store, and Car Wash.” Vicky watched the man closely for any additional signs of mental illness, but didn’t notice anything unusual beyond the fact that he had mindlessly put about eight sugars into his coffee over the prior ten minutes, but so far hadn’t taken a single sip. Occasionally, he would pick up the gang leader’s wallet, look at it, and return it nervously to the table without opening it.  “My name is Hal O’Grady,” he finally offered as if confessing. ”I suppose if you want to turn me over to the police for mugging those kids, I won’t argue or try to escape or anything like that.”
+This was all too much for Vicky, and she couldn't help but laugh hysterically.  “Vicky Montana,” she said between fits of hysteria. “And what makes you think the police give a damn about you mugging a scooter gang?  Hell, I was there, Punkin’. You accidentally robbed them, at best.  You’re just damn lucky to be alive.  What were you thinking trying to start a fight with three of them over eight dollars in a wallet?  In fact, no, give me that thing!” She snatched the wallet off the table and started going through it, triumphantly extracting a driver’s license.  “Anthony Pearson,” she said, reading his home address and personal stats.  “Your life is about to get real interesting, now, Misdemeanor  McGee.”[^fn1]
+“You're going to turn him in?”
+“Heck no!” She squinted in disbelief and shook her head. “I’m gonna spend the next six months making this detention hall Brubaker WISH the police cared enough about this skinny ass to arrest him.  My crew and I live for jobs like this.”
+“Wait, you’re in a gang?  What, are you? Organized crime?”
+“Hackers, Punkin’.  We’re kinda famous on the dark web.  I don’t suppose you wouldn’t know anything about that kind of stuff, though.”  Her eyes squinted as she regarded him closely. ”What are you, a youth minister?”
+“Jr High schoolteacher.”
+Vicky raised one eyebrow, impressed.  “Okay, maybe you do know then.”
+“Girls volleyball coach,” Hal added matter-of-factly. ”In the suburbs.”
+“Oh.” Vicky recoiled slightly. “Well, I don’t know how Buffy and Heather settle things out there, but by this time tomorrow, I’m gonna have this boy’s power, water, and phone shut off. Then I'm gonna sign him up to get hourly visits from Army recruiters, Jehova’s Witnesses, and window salespeople.  You ever try to get rid of a window salesperson?  You can’t. Worse than raccoons in your attic.  Then next week, I go all biblical and get him up close and personal with the Ten Plagues of Vicky. I have a friend who can get cockroach pheromones by the gallon. Put some of that in a free cologne sample and mail it to him?  Ol’ boy will be more popular than the dumpster at a Mexican restaurant wherever he goes for the next two weeks.”
+Hal gulped. “Remind me not to get on your bad side.”
+“Hey, nobody messes with Vicky Montana.  At least, not twice.  You got your mad skills with window-washing implements.  Mine are a bit more subtle, but just as dangerous.”
+Hal smiled to himself.  “I guess that whole thing was pretty stupid, wasn’t it?”
+“What’s so important about that wallet that you had to have it back?”
+“Well, my Club Racquet membership card was in there, for one thing.  And without a valid driver's license, those are practically irreplaceable.”
+“Yeah, right. You’re some tough guy who goes all Charles Bronson on three hoodlums for stealing his country club card.  I don’t think so, Punkin’. What is it?  Some kind of personal grudge, or just unresolved anger issues over a bad line call?”  She looked at him expectantly, using a facial expression she found made most people trust her instantly.
+Hal took a sip from his coffee and looked out the window at nothing for a moment.
+“What would you do if nothing mattered anymore, and you knew you were going to die?”
+“We’re all going to die.  I don’t think those punks are killers, however. Might whoop your ass, but I doubt they’d kill you.”
+“Not what I meant,” Hal said, looking her in the eyes for the first time.
+Suddenly, it all became clear.  “Oh, Punkin’, I’m so sorry.”
+“I just found out a few hours ago.  I think I’m still in denial.” He waved off any further discussion of the details.  “But, the question stands.  What would you do?  I’d really like to know.”
+Vicky sat back and thought for a moment.  “Well, I definitely wouldn’t waste my time going to some revenge kick to get my wallet back from a scooter gang.”  She took a sip of coffee and thought about it some more.  “I think I’d probably just make it all about me. Screw friends and family.  I’m not going to be a burden to them.  I’d probably make a list of all the things I want to do and all the places I want to see, then sell everything I own and hit the open road.  Then, when I got through the list, I’d find a quiet place to disappear to.”
+“I kinda like that idea,” Hal said. “It makes a twisted kind of sense, really. Like a cable news headline, only backed up with a lucid explanation.”
+Vicky nodded.  “They say you die twice. Once when they put you in the ground and again when someone says your name for the last time. Now, to me, that means you better go out doin’ something that keeps ‘em talking for a few years.  I mean, unless you’re famous enough, they named a building or a street after you or something.  You don't have any streets named after you, do you?”
+Hal was deep in thought now, and Vicky was worried he was going to a dark place. She hated to pry.  This was a stranger, after all, but he seemed like a nice person dealing with a lot more than anyone should have to deal with so young.
+“So,” she continued, “that’s me.  Any thought as to what you’re going to do?  I assume you’re wandering the streets in the middle of the night because you have no family or anyone else to help you carry this load.”
+Hal sat up abruptly. “No, I mean, good God, you’re right, I didn’t mean to dump any of this on you, I---”
+“Punkin’, it’s fine.  I was a mother once.” She patted his hand gently.  “To be honest, I kinda miss taking care of folks.  Plus, you did save my life and buy me coffee.”  She tried to look him in the eyes, but he seemed embarrassed by the entire situation.  “You really don’t have anyone?”
+“No one that I can burden with this.  At least not right now.”  He sat up straight, took a deep breath, and sipped his coffee.
+“So, what are you going to do, then?” she asked.
+“I don’t know.  Maybe just cash in my savings.  Have a big party.  Invite everyone I’ve ever known -- people I haven’t seen since I was a kid.  Call it my ‘going away party.’  I just won’t tell anyone where I’m going.”
+Vicky shook her head. “Now, that sounds depressing.”
+“Why?  I’d make it open bar.”
+“Because that’s living in the past. You have a unique perspective. Look, if you’re in an amusement park, and it’s closing in an hour, do you gather everybody up, grab a cotton candy, and talk about how much fun you had all day?  Heck no, you go on the best ride again, or better yet, you go on the ride you missed out on because you were either too scared or just didn’t get around to it.  If you have to, you grab your squeegee and push someone out of line to get on it.”[^fn2]
+Hal smiled. “Okay. You have a point there.”
+“Of course I do.  Now, what you need to do is start making a list.  Don’t just list the places you want to go.  List the experiences you want to have.  Think back on all the times you felt really alive, the times when you said to yourself, ‘Wow, that was great. I’ve got to do that again someday.’  Then you don’t wait around.  You start on that list as soon as you can.  Don’t waste any more days.”  She opened her purse, pulled out a business card, and wrote her phone number on the back. “Now, I don’t normally give these out to strange men, but you seem harmless.” She slid the card to Hal. ”You call me.  Any time.  If you get low and don’t think you have anyone to talk to, or if you have a great experience and want to tell someone about it, or even if you just want to talk.  Call me.  Like I said, I kinda miss bein’ a mamma.”
+Hal regarded the card for a moment and slipped it into his pocket.  “Thanks, Vicky.  I’m glad I met you.”
+
+[^fn1]:  Everybody gets a nickname from Vicky, and I’ve already run out.
+
+[^fn2]:  Dragging a little here, and needs a humor upgrade.

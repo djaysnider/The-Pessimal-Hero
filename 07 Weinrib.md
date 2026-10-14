@@ -1,0 +1,38 @@
+Barry spent twelve hours in the Emergency Room lobby, waiting for some word of Hal’s condition. He spent most of it playing Aquaman with the various nurses who came on and off shifts, and he was currently beating the night shift 15 to 11. It wasn’t much of a challenge, so he modified the game and began playing against a pale young woman with a gaunt frame who was bleeding profusely from the side of her head. She was good, he decided. The constant twitching, rubbing of her nose, and scratching at her arms were an excellent fake-out.  After an hour, she still hadn’t looked his way, and he was beginning to question his attractiveness to women.
+More than this, he was worried about Hal. Had he had some kind of heart attack? As far as Barry knew, there was no history of such things in Hal’s family, and even for a P.E. teacher approaching middle age, Hal always seemed very conscientious of his diet and exercise habits. Perhaps it was just the stress of losing his mother. Hal couldn’t have been sleeping or eating well for the past few weeks as he tried to balance work and end-of-life care for his mom. Barry decided he never should have agreed to keep their regular tennis game. Hal should have been home resting after all he’d been through lately.
+When Hal finally emerged from the ER, he was ghost white and stumbling aimlessly down the long hallway to the receptionist’s area. His arms clutched a large manilla envelope against his chest as if it contained the universe’s secrets, and his eyes had the distant gaze of someone who had accidentally stumbled on them in the fridge after going for a beer. He slowly paced towards the hospital exit in a straight line that definitely would not have passed muster in a field sobriety test. Barry leaped to his feet and ran to catch up with him. “Hey, Hal, you doin’ okay? Where are you going?”
+“I have to go back to the club and get my car,” Hal said somberly, his eyes still focused on something two towns over.
+“The club is nine miles away. Come on, I’ll drive you.”
+“No, I’m good. Nice night for a walk.” Hal’s voice had no emotion in it. 
+“It’s 1 AM, Hal.” 
+Hal simply continued walking straight ahead, staring off at nothingness.  “Cool, no traffic.  Should make good time,” he mumbled.  The ER’s sliding glass doors parted without protest, and he continued into the parking lot.
+“Well, you should probably go back and at least give them your insurance card and check out.”
+“Oh, they have all that. They said not to bother with it and just go home. I’m coming back in two days for some more tests.”
+“Tests? What do you need tests for?”
+“Oh, just second opinions, even though the experts are already pretty sure. They only poked and prodded me for the last ten hours and took a sample of just about every bodily fluid I have, hoping to find something else.”
+Hal crossed the parking lot and the sidewalk and started to walk straight into the street without looking. Barry grabbed his arm and pulled him back to the sidewalk.
+Hal seemed to notice him for the first time. His eyes had a fight-or-flight hint of madness in them. “How long have we been best friends?”
+Barry thought for a moment. “Almost thirty years. Since the third grade. The whole class, except for something like six of us caught chicken pox.  We ruled the playground for almost two weeks.  We were the Knights of Chickpoxia: Sir Itchesalot and Sir Scabrevere.” Barry said.
+“Yeah.” Hal chuckled and started walking again, this time staying on the sidewalk. “We all got quarantined into separate corners, and Mrs. Harris drew ‘Can’t Touch This’ zones all over the classroom. Then you and Wendy Davidson both got sent home on the same afternoon,” Hal said, staring at his friend accusingly.  “I always thought that was an unlikely coincidence and that you ignored the sacred words of M.C. Hammer.  You never did cop to that one.”  Wendy later became their proverbial “Third Musketeer” and was always hanging out with them. Well, at least until she bloomed early and developed more of an interest in football players a few years older than her and less in the two still awkward kids who were more into watching movies on the couch than all that macho stuff. Of course, that lasted only a couple of years, and by the time they graduated, Hal was still just as unpopular with the ladies, but he was now the star of the high school volleyball team.
+Barry smiled sheepishly. “Well, okay, yeah, chicken pox wasn’t the worst thing Wendy gave me, in retrospect.” Unlike Hal, Barry had gotten over his awkwardness with women. “Is that what the tests are? You’ve got shingles or something now?”
+“Weinrib-Živojinović[^fn1] Syndrome. Apparently, it’s pretty advanced.”
+“Wineribzima what?”
+Hal stopped abruptly at an intersection, then turned and handed Barry the folder. Seemingly oblivious, he then turned back and proceeded to cross the street. Two cars squealed their brakes and honked at him. He didn’t seem to notice and kept walking.
+Barry opened the folder. It contained a couple dozen different flyers and pamphlets. The one on the top caught his eye. It bore the words “The Dying Process: What to Expect” in a calming, scripted font. Barry’s heart skipped a beat, and he darted across the intersection to catch up with Hal. “Uh, man, what do you have?”
+“I told you, Weinrib-Živojinović Syndrome. They said it’s extremely rare. Literally one in a million odds of getting it.” He shrugged. “Still, that’s slightly better odds than winning the lottery, getting struck by lightning, or getting the right order from a Taco Bell drive-through after 9 PM.”
+“So, what is it?”
+“Some kind of abnormal protein that attaches itself to cells, replicates itself in clumps, then attacks the nervous system and eventually the brain.”
+“That’s why you collapsed then?”
+Barry nodded. “They gave me a prescription to control the loss of motor coordination for the time being, but I’m on a clock. In less than a year, the pills won’t help anymore, and I’ll rapidly start losing muscular coordination. At that point, the protein has hit the brain, causing lesions, which lead to memory loss and dementia.”
+“So, what do you need, man? Blood? Bone marrow? A kidney? Just ask, and you can have it.”
+“There’s no cure. Like I said, only 200 people in the country have it. They don’t exactly throw millions of research dollars at that kind of stuff.”
+“Then how did YOU get it?”
+“It’s hereditary, Barry. That’s likely what Mom died from, but because she was older, her frequent falling and loss of memory were easily explained as basic dementia. They didn’t even think to check for an extremely rare disease.”
+Barry said nothing but continued to leaf through the folder as if looking for an answer.
+“I’ve got a year, Barry. In nine months, I’ll have the coordination of a giraffe on roller-skates and the mental faculties of a Congressman. My personality will change, my eyesight will start to go, and I’ll be on a rapid descent, just like Mom. I’ll only be 35. I can’t end up like that, Barry. I can’t let my sister go through all this again so soon after the last time.  I don’t even have my song picked out.”
+“Hal, we’ll get through this. I’ve got your back,” Barry said, putting an arm on his shoulder.
+“I know you do, man. I’m gonna go get my car and go home.”
+“Let me drive you.  It’s a three-hour walk from here through some pretty dicey neighborhoods.”
+“I need time to process this. I’ll call you tomorrow.” Hal said, turning and walking off into the night. Barry watched him go, feeling completely powerless. It was almost midnight. He was now a mile from his own car and still holding on to Hal’s folders. At least the latter gave him some reading material for the evening.
+
+[^fn1]:  Deep Rush Reference
